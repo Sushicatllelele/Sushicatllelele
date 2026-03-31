@@ -12,5 +12,7 @@ Some other things
 
 ☆People under 18 please don't int!
 
-☆Please don't int if you support proshippers or lolicons!
+☆Please don't int if you support proshippers or lolicons or anything like that!
+
+![sushi-roll](https://github.com/user-attachments/assets/7ebb9b76-faa5-4616-ab66-0cd37c19850e)
 
